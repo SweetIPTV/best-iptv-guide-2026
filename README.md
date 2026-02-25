@@ -1,4 +1,5 @@
 # 🚀 Best IPTV Service Providers 2026 — BUY IPTV Service 2026 — 
+<meta name="google-site-verification" content="UichUsx74nd-lfmpejta_Lkzq6teX9hsQLfilPKcMoQ" />
 
 [![WhatsApp Support](https://img.shields.io/badge/WhatsApp-Contact_Us-25D366?style=for-the-badge&logo=whatsapp)](https://wa.me/447782261012)
 [![Free Trial](https://img.shields.io/badge/Get_Free-Trial_2026-blue?style=for-the-badge)](https://sweetiptv.com/iptv-on-firestick-2026-setup-guide-free-trial/)
